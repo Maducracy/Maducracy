@@ -1,5 +1,5 @@
 Hi Chidubem Maduka a frontend ddevloper with ReactJs
-I create Website application and stay consistent.
+I create Web applications and stay consistent.
 I majored on Political Science, then transited into technology
 Here is my X account
 
