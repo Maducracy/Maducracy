@@ -1,4 +1,4 @@
-Hi Chidubem Maduka a frontend ddevloper with ReactJs
+Hi Chidubem Maduka a frontend devloper with ReactJs
 I create Web applications and stay consistent.
 I majored on Political Science and InternationalRelations, then transited into technology
 
